@@ -1,2 +1,3 @@
 # Beginner
 time to get things together
+here im going to made some changes to check thing thing out or of this thing work or not ... jsut few words jumbled out of my mind to put it in here on this edit box thing....
